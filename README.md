@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JPro561
 - 👀 I’m interested in Progammer and musics 
-- 🌱 I’m currently learning in Python, HTML and JavaScript
+- 🌱 I’m currently learning Python, HTML and JavaScript
 - 💞️ I’m looking to collaborate on MEMZ 😂😂🤣
 - 📫 How to reach me: I won't talk 🤣😂
 - 😄 Pronouns: JPro, Clever and Junior
